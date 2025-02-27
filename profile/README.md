@@ -1,1 +1,1 @@
-We are the Open Atomic Open Source Society **(OAOSS)** of China University of Petroleum **(CUP)**!
+We are the Open Source Association **(OSA)** of China University of Petroleum **(CUP)**!
